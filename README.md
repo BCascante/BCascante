@@ -1,4 +1,5 @@
 ## Hi there 👋
+![Black and White Classic Professional Interior Designer Profile LinkedIn Banner](https://github.com/user-attachments/assets/7d3713f4-bfbf-4e25-a69c-0a376e3250ee)
 
 <!--
 **BCascante/BCascante** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
